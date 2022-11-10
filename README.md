@@ -1,1 +1,1 @@
-# thairpharmacy.github.io
+# tahirpharmacy.github.io
